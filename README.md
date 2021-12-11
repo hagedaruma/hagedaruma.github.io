@@ -1,0 +1,1 @@
+# hagedaruma.github.io
